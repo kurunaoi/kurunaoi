@@ -16,7 +16,7 @@ im mostly at the pjsk area with friends, you may find me wit other gh users such
 - @templeofchronos
 - @partyofblast
 
-⠀⠀︵⌣︵⌣︵⌣︵⌣︵⌣
+⠀⠀︵⌣︵⌣︵⌣︵
 ⠀⠀PLEASE KNOW THAT:
 
 - ALTERS RUN FREELY
